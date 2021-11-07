@@ -1,2 +1,2 @@
 # Misc
-Everything from @CharlieGao2009!
+Everything from CharlieGao2009!
